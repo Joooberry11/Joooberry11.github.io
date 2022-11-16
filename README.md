@@ -1,6 +1,5 @@
 ### Welcome to *Joooberry11.github.io*
 
-- My Favorite stuff
 **HOBBIES**
 - Volleyball
 - K-pop 
