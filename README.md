@@ -112,9 +112,10 @@ You always have been
 ---
 
 [![Happier than ever](https://lh3.googleusercontent.com/pWO2rD8Q-ewDGhzt6_WU4ML9IVEdSxys8ENJMKr1msKrGC1PDIFycSNbwhoT9zoDdTp4X7ioo2T42S0=w544-h544-l90-rj)](https://music.youtube.com/playlist?list=OLAK5uy_kZTe3AtTLf-rVTNFfmKMdy9wp16xmg0qs&feature=share)
-Try not to abuse your power
+
 ***YOUR POWER***
 
+Try not to abuse your power
 I know we didn't choose to change
 You might not wanna lose your power
 But having it's so strange
