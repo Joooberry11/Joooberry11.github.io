@@ -21,11 +21,11 @@ MY ALL TIME FAVOURITE SONGS/ALBUMBS
 
 ***NANGANGAMBA***
 
-… Nangangamba nangangamba ang 'yong puso
+ Nangangamba nangangamba ang 'yong puso
 Hindi ka sigurado ('di ka sigurado)
 Nalilito nalilito ang 'yong utak
 Kung tunay bang pag ibig 'to (tunay bang pag ibig 'to)
-… Ano ba ang problema mo
+ Ano ba ang problema mo
 Sabihin na ang totoo
 … Sabihin mo na nilalaman ng puso mo
 At nararamdaman nito
@@ -153,7 +153,47 @@ Mmm
 Ooh-ooh-ooh-ooh
 Ooh-ooh-ooh-ooh, hmm
 
+---
 
+[![Harry's house](https://lh3.googleusercontent.com/F618Qwn2yRlYhCqlMtEMnFHajg4rGZSGeWOF4ro7l3I9R6y7aGfowqqiNQqj6CgVR0yepTK6T5aRSfAF=w544-h544-l90-rj)]([https://lh3.googleusercontent.com/F618Qwn2yRlYhCqlMtEMnFHajg4rGZSGeWOF4ro7l3I9R6y7aGfowqqiNQqj6CgVR0yepTK6T5aRSfAF=w544-h544-l90-rj))](https://www.youtube.com/watch?v=YOUTUBE-ID](https://music.youtube.com/playlist?list=OLAK5uy_mu3voG4KzkhRlc7eIWpkOieVW-I5GFMKs&feature=share))
+
+***AS IT WAS***
+
+-Holdin' me back
+-Gravity's holdin' me back
+-I want you to hold out the palm of your hand
+Why don't we leave it at that?
+Nothin' to say
+When everything gets in the way
+Seems you cannot be replaced
+And I'm the one who will stay, oh
+In this world, it's just us
+You know it's not the same as it was
+In this world, it's just us
+You know it's not the same as it was
+As it was, as it was
+You know it's not the same
+Answer the phone
+"Harry, you're no good alone
+Why are you sittin' at home on the floor?
+What kind of pills are you on?"
+Ringin' the bell
+And nobody's comin' to help
+Your daddy lives by himself
+He just wants to know that you're well, oh
+In this world, it's just us
+You know it's not the same as it was
+In this world, it's just us
+You know it's not the same as it was
+As it was, as it was
+You know it's not the same
+Go home, get ahead, light-speed internet
+I don't wanna talk about the way that it was
+Leave America, two kids follow her
+I don't wanna talk about who's doin' it first
+As it was
+You know it's not the same as it was
+As it was, as it was
 
 
 
