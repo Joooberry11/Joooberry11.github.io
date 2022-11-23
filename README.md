@@ -18,7 +18,7 @@
 
 MY ALL TIME FAVOURITE SONGS/ALBUMBS
 
-![Zack](https://1.bp.blogspot.com/-cDoZzIDaAaA/XzDzI3KK4TI/AAAAAAAABEI/tq1UZR9EuiEyeRM_kNBPO-wtaEz2VY7YgCLcBGAsYHQ/s1600/2020-04-22%2B07.59.40%2B2.jpg)
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/1dcNEEtODRVZEevQ20Cgmy?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ***NANGANGAMBA***
 
@@ -56,7 +56,7 @@ Baka kasi mawala na ako
 
 ---
 
-[![Midnights](https://lh3.googleusercontent.com/omCs21jqwK4Ss_VZxPFKwQP5z0UY0vi_8gXu4XNxHKDgE-GHYHWkIw80XR1uzFgdyhM3PvVUZeZ8iAfF=w544-h544-l90-rj)](https://music.youtube.com/playlist?list=OLAK5uy_nwM2VykawOmNH-z3L283XEI95Jb-sxIBo&feature=share)
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/artist/06HL4z0CvFAxyc27GXpf02?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ***YOU'RE ON YOUR OWN, KID***
 
@@ -113,7 +113,7 @@ You always have been
 
 ---
 
-[![Happier than ever](https://lh3.googleusercontent.com/pWO2rD8Q-ewDGhzt6_WU4ML9IVEdSxys8ENJMKr1msKrGC1PDIFycSNbwhoT9zoDdTp4X7ioo2T42S0=w544-h544-l90-rj)](https://music.youtube.com/playlist?list=OLAK5uy_kZTe3AtTLf-rVTNFfmKMdy9wp16xmg0qs&feature=share)
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/0JGOiO34nwfUdDrD612dOp?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ***YOUR POWER***
 
@@ -156,7 +156,7 @@ Ooh-ooh-ooh-ooh, hmm
 
 ---
 
-[![Harry's House](https://lh3.googleusercontent.com/F618Qwn2yRlYhCqlMtEMnFHajg4rGZSGeWOF4ro7l3I9R6y7aGfowqqiNQqj6CgVR0yepTK6T5aRSfAF=w544-h544-l90-rj)](https://music.youtube.com/playlist?list=OLAK5uy_mu3voG4KzkhRlc7eIWpkOieVW-I5GFMKs&feature=share)
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/5r36AJ6VOJtp00oxSkBZ5h?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ***AS IT WAS***
 
