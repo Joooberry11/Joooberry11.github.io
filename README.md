@@ -3,14 +3,14 @@
 
 ![turqoise](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTkpM24HLxHSyouePYYB6f5QuDETUn-zGuotg&usqp=CAU) 
 ---
-4 FAV OPM SONGS
+4 FAV ALBUMS
 ---
 
-| Nangangamba | Zack Tabudlo |
+| ALBUM | ARTIST|
 |---------------|-----------------------------|
-| Paraluman | Adie |
-| Di na muli | Itchyworms |
-| Pagtingin | Ben and Ben | 
+| MIDNIGHTS | Taylor Swift |
+| HAPPIER THAN EVER | Billie Eilish |
+| Harry's House | Harry Styles | 
 
 ---
 ![turqoise](https://i.pinimg.com/736x/23/cc/de/23ccdec4c410ac2a222506af50ddcba8.jpg)
